@@ -13,4 +13,4 @@ Skills: HTML / C++ / C # / Java
 🤔 I’m looking for help with github
 📫 How to reach me: tel 735 108 998
 ⚡ Fun fact: I am studint programist and i active athlete 
-👯 I’m looking to collaborate on programming and building your website
+👯 I’m looking to collaborate on programming and building your website or play profesionall Futsal
